@@ -14,3 +14,6 @@ http://paper.people.com.cn/rmrb/html/2017-08/17/nw.D110000renmrb_20170817_6-05.h
 
 http://paper.people.com.cn/rmrb/html/2017-08/17/nbs.D110000renmrb_07.htm
 
+http://paper.people.com.cn/rmrb/html/2017-08/28/nw.D110000renmrb_20170828_3-05.htm
+审视“我们是谁”的命题
+
