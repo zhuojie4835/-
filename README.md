@@ -25,3 +25,6 @@ https://mp.weixin.qq.com/s?__biz=MzA4ODUzNjAxOA==&mid=2671059754&idx=1&sn=734a79
 改革是勇敢者的事业（思想纵横）
 http://paper.people.com.cn/rmrb/html/2017-09/14/nw.D110000renmrb_20170914_2-07.htm
 
+政绩在民意闲谈中（纵横）
+http://paper.people.com.cn/rmrb/html/2017-09/15/nw.D110000renmrb_20170915_5-05.htm
+
