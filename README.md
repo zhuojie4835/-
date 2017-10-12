@@ -28,3 +28,6 @@ http://paper.people.com.cn/rmrb/html/2017-09/14/nw.D110000renmrb_20170914_2-07.h
 政绩在民意闲谈中（纵横）
 http://paper.people.com.cn/rmrb/html/2017-09/15/nw.D110000renmrb_20170915_5-05.htm
 
+中国为何有坚定的制度自信（大家手笔）
+http://paper.people.com.cn/rmrb/html/2017-10/11/nw.D110000renmrb_20171011_2-07.htm
+
