@@ -31,3 +31,6 @@ http://paper.people.com.cn/rmrb/html/2017-09/15/nw.D110000renmrb_20170915_5-05.h
 中国为何有坚定的制度自信（大家手笔）
 http://paper.people.com.cn/rmrb/html/2017-10/11/nw.D110000renmrb_20171011_2-07.htm
 
+努力提高社会治理精细化水平（治理之道）
+http://paper.people.com.cn/rmrb/html/2017-10/11/nw.D110000renmrb_20171011_3-07.htm
+
