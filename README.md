@@ -34,3 +34,6 @@ http://paper.people.com.cn/rmrb/html/2017-10/11/nw.D110000renmrb_20171011_2-07.h
 努力提高社会治理精细化水平（治理之道）
 http://paper.people.com.cn/rmrb/html/2017-10/11/nw.D110000renmrb_20171011_3-07.htm
 
+让公共政策更有民生温度（人民时评）
+http://paper.people.com.cn/rmrb/html/2017-12/05/nw.D110000renmrb_20171205_2-05.htm
+
